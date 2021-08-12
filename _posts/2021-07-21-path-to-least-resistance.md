@@ -10,6 +10,7 @@ categories: [general]
 Basically, you make the situations / environment so simple and so easy to follow that you can’t even procrastinate or find other things to do.
 
 For example, if you want to make the habit of reading books here’s what you can do:
+
 - Put the book in your sight all day so you won’t forget about it and it’s easy to access.
 - Start by promising yourself to only read 2 minutes a day. 
 

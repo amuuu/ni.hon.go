@@ -10,6 +10,7 @@ Basically, there are two ways we can encounter new words:
 - Out of context: You actively find words in lists/flash cards/etc.
 
 Obviously, the best way is to learn words in their context. BUT there are two problems:
+
 1) only sticking to this way might take a long time.
 2) you need a base vocabulary knowledge to be able to contextualize the content and learn new words
 
