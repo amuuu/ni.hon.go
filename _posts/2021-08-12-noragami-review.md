@@ -20,3 +20,7 @@ Overall, Noragami is definitely worth watching. Two seasons is out and it may co
 ### Additional thoughts (*w/ spoilers*)
 
 Obviously, it's a shounen manga/anime, it doesn't have to completely logically make sense. But I think the god characters, have more of a "angel" functionality than a "god." The name of "god" might just be a cooler term to use. The fact that a God can die and regenerate or completely vanish if they're not remembered by any being in the living relm implies that there is a higher power than these gods. Their higher power must be immune to life and death.
+
+_____
+
+Follow on Instagram: [@ni.hon.go](https://instagram.com/ni.hon.go)
