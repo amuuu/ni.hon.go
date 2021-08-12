@@ -12,6 +12,7 @@ Basically, there are two ways we can encounter new words:
 Obviously, the best way is to learn words in their context. BUT there are two problems:
 
 1) only sticking to this way might take a long time.
+
 2) you need a base vocabulary knowledge to be able to contextualize the content and learn new words
 
 So we need out-of-context learning to help us accelerate the in-context learning.
